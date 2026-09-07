@@ -2,6 +2,6 @@
 
 My name is qkun-zh.
 
-I am from CUPK and SWJTU.
+I'm a student at CUPK and SWJTU.
 
-You can contact me via qkun-zh@qq.com.
+You can reach me at qkun-zh@qq.com.
