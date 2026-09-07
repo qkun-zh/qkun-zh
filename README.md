@@ -1,5 +1,7 @@
-# qkun-zh
+# Hi there 👋
 
-CUPK and SWJTU
+My name is qkun-zh.
 
-qkun-zh@qq.com
+I am from CUPK and SWJTU.
+
+You can contact me via qkun-zh@qq.com.
